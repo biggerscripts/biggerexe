@@ -1,0 +1,1 @@
+Go to main screen and click code and you will find a option that says install zip click on it and you should start installing a file. After that's done double click it and it should open and you should have the executor for roblox. 
